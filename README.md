@@ -1,3 +1,3 @@
 Devon Hebenton
-7
-Audioslave
+hebentod@oregonstate.edu
+yellow
